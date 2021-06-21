@@ -23,3 +23,7 @@ Pré-aqueça o forno a 180 graus e unte uma forma (o bolo fica lindo na de burac
 **Cobertura:**
 
 200g de chocolate meio amargo picado, 100ml de creme de leite fresco e 1 colher de sopa de mel. Levei ao fogo baixo, mexendo sempre até derreter. Esperei esfriar e espalhei no bolo.
+
+
+
+**Site: Jantinha de Hoje**
